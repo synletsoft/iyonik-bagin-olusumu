@@ -1,2 +1,0 @@
-# iyonik-bagin-olusumu
-
